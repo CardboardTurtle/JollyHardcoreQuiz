@@ -19,7 +19,7 @@ envision pry incursion modernization dimple evolutionary
 unrelated novelist atrium brace age
 swatch twentieth-century glove still
 pace privatization rocket episcopal want
-swivel bog flick beans streak
+swivel bog asparagus beans streak
 judiciary destroy enliven prowess haitian
 crisscross insane knight bump stiff
 stalemate beard broadside manned trope
@@ -42,7 +42,7 @@ envision pry incursion modernization dimple evolutionary
 unrelated novelist atrium brace age
 swatch twentieth-century glove still
 pace privatization rocket episcopal want
-swivel bog flick beans streak
+swivel bog asparagus beans streak
 judiciary destroy enliven prowess haitian
 crisscross insane knight bump stiff
 stalemate beard broadside manned trope
